@@ -1,2 +1,2 @@
 # HackerRank
-![alt text](https://d3keuzeb2crhkn.cloudfront.net/hackerrank/assets/styleguide/logo_wordmark-f5c5eb61ab0a154c3ed9eda24d0b9e31.svg)
+![alt text](https://i.ytimg.com/vi/tJl36vQtA5k/maxresdefault.jpg)
